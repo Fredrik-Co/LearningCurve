@@ -1,4 +1,4 @@
 # LearningCurve
 Hardstuck Fredrik
 
-- Potatoes
+- Potatoes 🥔🥔🥔🥔🥔🥔🥔
